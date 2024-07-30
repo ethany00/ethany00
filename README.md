@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **florenceh@naver.com**
 
-- ⚡ Fun fact **my hobby is exercise.**
+- ⚡ Fun fact **my hobby is workout.**
 
 <hr>
 
